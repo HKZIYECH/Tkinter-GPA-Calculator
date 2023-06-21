@@ -1,1 +1,0 @@
-This GPA calculator is not applicable for every school, it's specifically made for the Andinet International School system and may provide false info if used by other school systems.
