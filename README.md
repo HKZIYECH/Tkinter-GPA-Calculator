@@ -13,9 +13,9 @@
 
 - 👯 500 lines **Of Code**
 
-- 🤝 Took me more than **48 Hours**
+- 🤝 Took me more than **96 Hours**
 
-- 💬 Question? Ask away at **Telegram @youngkippa and Instagram @sofoniass**
+- 💬 Question? Ask away at **Telegram @youngkippa and Instagram @sofoniaas**
 
 - 📫 My Email Address **sofonias.alemayehu.andinet3@gmail.com**
 
