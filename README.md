@@ -15,7 +15,7 @@
 
 - 🤝 Took me more than **96 Hours**
 
-- 💬 Question? Ask away at **Telegram @youngkippa and Instagram @sofoniaas**
+- 💬 Question? Ask away at **Telegram @Bosnov and Instagram @sofoniaas**
 
 - 📫 My Email Address **sofonias.alemayehu.andinet3@gmail.com**
 
